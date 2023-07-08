@@ -1,4 +1,4 @@
-# Excel Templates & Projects 
+# Excel Templates & Projects (Business & Finance)
 ### Credit to Kenji Explains Youtube Channel
 ---
 **1. 3 Statement Model**
